@@ -18,6 +18,20 @@ https://research.adobe.com/adobe-india-women-in-technology-scholarship/
 
 https://research.adobe.com/scholarship/
 
+Snap Research Fellowship & Scholarship : https://snapresearchfs.splashthat.com/ (Temporary Link)
+
+Facebook F8 Scholarship
+
+Udacity Scholarships
+
+ACloudGuru and Women Who Code Scholarship
+
+Flatiron School and Women Who Code Scholarship
+
+RMOTR Scholarship
+
+Upsilon Pi Epsilon: http://upe.acm.org/scholarship.html
+
 https://www.iie.org/Programs/Adobe-Creativity-Scholarships
 
 https://www.motachashma.com/scholarships/
