@@ -32,10 +32,16 @@ RMOTR Scholarship
 
 Upsilon Pi Epsilon: http://upe.acm.org/scholarship.html
 
+https://www.oreilly.com/conferences/diversity-application.csp
+
 https://research.fb.com/programs/fellowship/  (The Facebook Fellowship Program is designed to encourage and support promising doctoral students who are engaged in innovative and relevant research in areas related to computer science and engineering at an accredited university. Opens next in August 2019)
 
 Research Awards by Facebook in various research areas: https://research.fb.com/programs/research-awards/
 
 https://www.iie.org/Programs/Adobe-Creativity-Scholarships
+
+https://skillsmatter.com/conferences/10823-ioscon-2019-the-conference-for-ios-and-swift-developers?fbclid=IwAR2wf79PXZltxYEtcQK0y0ms-y8t3Xmz3o9jk57f_e8K_zsbbDjKR7mZ7PA#get_involved
+
+http://knoesis.org/resources/Emoji2019
 
 https://www.motachashma.com/scholarships/
